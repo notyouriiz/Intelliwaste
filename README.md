@@ -1,1 +1,1 @@
-# Team_SCU
+# Team SCU PKM-KC
